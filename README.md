@@ -1,2 +1,0 @@
-# tongdaigan.github.io
-tongdaigan
